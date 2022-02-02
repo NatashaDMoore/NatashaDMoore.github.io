@@ -1,2 +1,0 @@
-# natashaMoore
-Portfolio
